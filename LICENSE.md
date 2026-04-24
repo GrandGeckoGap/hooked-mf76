@@ -1,4 +1,4 @@
-
+Experience hooked like never before with smart hooked Script, the #1 Script. Includes esp and auto-upgrade for unbeatable performance.
 
 
 
